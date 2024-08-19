@@ -1,1 +1,1 @@
-Migration manuals to ber added
+Migration manuals to be added
